@@ -23,5 +23,3 @@
 ![添加课程](http://a4.qpic.cn/psb?/V11WJCtz0Pj6j6/*Qpqw.KO81gtnYLAxLwj1rAAHVL1lLqS1juse*JF5OU!/b/dG8BAAAAAAAA&ek=1&kp=1&pt=0&bo=pwRiAacEYgEDCC0!&sce=50-1-1&rf=viewer_311)
 #课程信息修改
 ![课程信息修改](http://b228.photo.store.qq.com/psb?/V11WJCtz0Pj6j6/wHypkpg5bWPtA*eU*rY60UFfk63D1ZBu.V16ZQUBWMk!/b/dOQAAAAAAAAA&amp;bo=TAWOAUwFjgEDCC0!&rf=viewer_311)
-#老师信息修改
-![老师信息修改](http://a2.qpic.cn/psb?/V11WJCtz0Pj6j6/Kx8iTQWc*r9vYuXjUuTapjTYgqAvmfg74PncMCpF6Mo!/b/dA0BAAAAAAAA&ek=1&kp=1&pt=0&bo=UwVWAVMFVgEDCC0!&sce=50-1-1&rf=viewer_311)
